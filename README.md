@@ -5,3 +5,4 @@ i helped work on the internal alerts and i'm responsible for the teams messages 
 since when does windows have a ninja cat emoji are they the only os with that as an emoji
 
 anyways stream k-wau on spotify/apple music/soundcloud/tidal/bandcamp(?)
+linktr.ee/k_wau if ur curious
